@@ -1,2 +1,2 @@
-# HighTechMindustry
-High-Tech-"Mind-Story"
+# Emperor Of Marky
+emperor-of-marky"
